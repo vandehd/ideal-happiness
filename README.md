@@ -6,16 +6,13 @@ Tertegun ku dibuai dibuai dalam kenangan dan senyuman
 Yang tak ‘kan terlupakan
 
 reff:
-Mungkinkah tercipta kembali
-Malam nan penuh keindahan
+Mungkinkah tercipta kembaliMalam nan penuh keindahan
 Sinar rembulan terasa oh hangat menyentuh tubuh
 Di antara pelukan
 
-Kau dengar
-laguku
+Kau dengar laguku
 dalam simfoni
-Tiada lagi
-melodi
+Tiada lagi melodi
 dapat kucipta
 tanpa senyummu
 
